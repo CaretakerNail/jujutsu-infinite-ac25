@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with jujutsu infinite advanced Script, the #1 Script. Includes god mode and auto-farm for unbeatable
 
 
 
